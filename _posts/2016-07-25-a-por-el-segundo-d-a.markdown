@@ -1,0 +1,8 @@
+---
+published: true
+title: A por el segundo día: 
+layout: post
+---
+Esta mañana nos hemos levantado un poco tarde, me dolían mucho las piernas después de la caminata de ayer. Por la mañana nos hemos tenido que quedar en el hotel arreglando unos asuntos sobre nuestro viaje a Corfú, aún no teníamos billete de vuelta jeje. Me he bajado al super a comprar el desayuno (un paquete de galletas que están super buenas, de nocciola😍) y un poco de salami y pan para comer. Hay un bar cerca y he obtenido esa bomba de petróleo que aquí llaman café. Está rico pero joder qué fuerte está, os juro que no podía beber mucho seguido y he necesitado dos azucarillos. 
+Hemos preparado el bocadillo con esa mole de pan que veis en la foto (medio kilo, señores) y nos hemos ido al mercado de antigüedades, que lo ponen todos los sábados. Me encantan todas las antigüedades pero este mercado me ha decepcionado bastante, era más bien un mercadillo de barrio, con un montón de cosas de mercadillo de barrio. De todas formas hemos encontrado un sitio con libros regalados y me he hecho con una antología griega escolar, (porque los escolares de aquí tienen antologías griegas geniales) Después hemos visto el mercado de todos los días, y la verdad es que la fruta tenía una pinta fantástica, mañana vamos a comer solo fruta del mercado :3
+Después hemos ido a ver el río Po. Está en unos jardines preciosos y espesos. Los hemos rodeado con la bicicleta y al llegar a la otra parte nos hemos sentado a comernos el bocata. Hasta que ha llegado la lluvia y nos ha empapado. Hemos huido a casa y nos hemos quedado aquí tranquilitos hasta ahora, que nos vamos a dormir😊😊
