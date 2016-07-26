@@ -1,6 +1,6 @@
 ---
 published: true
-title: First post
+title: TORINO!
 layout: post
 ---
 Por fin ha llegado el día. ¡Carlos y yo nos vamos con una pequeña maleta llena de sueños a recorrer Corfú! Ayer por la mañana cogimos el avión que nos dejaba a mitad camino: estaremos hasta el lunes por la noche en Turín, y ayer ya visitamos lugares increíbles. Turín parece entera un cuadro, sus calles son preciosas, el río Po es espectacular y los jardines que lo rodean son un bonito lugar de descanso (si no os llueve, como a nosotros jeje).
